@@ -12,6 +12,6 @@
 
 ## Hecho por:
 
-###Emilia
+###Emilia Baudino
 
 ### Linkedin: https://www.linkedin.com/in/baudinoemilia/
